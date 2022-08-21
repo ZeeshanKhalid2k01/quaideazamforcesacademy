@@ -1,0 +1,2 @@
+# quaideazamforcesacademy
+just a practice
